@@ -1,4 +1,4 @@
-ABOUT ME
+ABOUT ME VA3YYZ
 
 Keep smiling, because life is a beautiful thing and there's so much to smile about.
 
@@ -8,10 +8,9 @@ https://www.ve3sp.com/p/about-me.html
 
 ACCOMPLISHMENTS :: (PAID) https://www.ve3sp.com/p/accomplishments-in-amateur-ham-radio.html
 
-ANDRE VE3SP.COM
 
-Social Links : www.linktr.ee/VE3SP
 
-VE3SP on QRZ : https://www.ve3sp.com/p/ve3sp-on-qrz.html
+ANDRE VA3YYZ
+Social Links : www.linktr.ee/VA3YYZ
 
 .
