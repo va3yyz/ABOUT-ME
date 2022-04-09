@@ -10,7 +10,7 @@ ACCOMPLISHMENTS :: (PAID) https://www.ve3sp.com/p/accomplishments-in-amateur-ham
 
 
 
-ANDRE VA3YYZ
+ANDRE VA3YYZ </br>
 Social Links : www.linktr.ee/VA3YYZ
 
 .
